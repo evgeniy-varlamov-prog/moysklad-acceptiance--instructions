@@ -1,0 +1,1 @@
+[Github Page](https://evgeniy-varlamov-prog.github.io/moysklad-acceptiance--instructions/)
